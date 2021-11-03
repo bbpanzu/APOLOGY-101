@@ -1,6 +1,6 @@
-## GUIDE TO THE PERFECT APOLOGY
+# GUIDE TO THE PERFECT APOLOGY
 
-# 1. THIS IS NOT ABOUT YOU
+## 1. THIS IS NOT ABOUT YOU
 
 the point of this is NOT to make yourself look good again.
 it is to address what you did wrong, why it's wrong, and that you apologize to those you have hurt or wronged
@@ -15,7 +15,7 @@ EXAMPLE: You said something racist
 ```
 	
 	
-# 2. FULL ACCOUNTABLILTY
+## 2. FULL ACCOUNTABLILTY
 
 remember you DID do something wrong and YOU DID affect people. Admit to it.
 ```
@@ -25,14 +25,14 @@ remember you DID do something wrong and YOU DID affect people. Admit to it.
 	"I apologize for [insert wrongdoing here]. I now know it [*reason why wrong doing is bad]." CORRECT. Not only did you awknowlege your action, you stated why what you did was wrong.
 		*reason should never be "it offends/upsets people".
 ```
-3. MAKE UP FOR IT (If possible)
+## 3. MAKE UP FOR IT (If possible)
 	you cannot do this step until you have done the 1st two.
 	For example, if you said something anti-black and have done the 1st steps, uplift some black voices, share some resources to help black people in need. even if it'll change your feed, do it! Show that you care.
 	
 
 
 
-# EXTRAS:
+## EXTRAS:
 	- NEVER ASK FOR FORGIVENESS (never expect forgiveness. apologize anyway because you aren't looking for forgiveness remember ;P)
 	- KEEP IT AS SERIOUS BUT GENUINE AS POSSIBLE (no joking talk. take this slash srs. don't talk like a resume tho. keep it slash gen)
 	- DON'T USE TWITLONGER. USE TWITTER THREADS (ive seen better results from threads)
