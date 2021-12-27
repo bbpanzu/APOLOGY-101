@@ -42,3 +42,5 @@ remember you DID do something wrong and YOU DID affect people. Admit to it.
     white guy: you are not in the position to forgive me. you weren't affected
     )
 	
+## CONCLUSION
+If all this has been done and they still do not forgive you, let it go. You should spend time trying to convince someone. Just work at yourself and become better.
