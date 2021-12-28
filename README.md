@@ -46,3 +46,8 @@ remember you DID do something wrong and YOU DID affect people. Admit to it.
 	
 ## CONCLUSION
 If all this has been done and they still do not forgive you, let it go. You should spend time trying to convince someone. Just work at yourself and become better.
+
+
+here's an epic image guide
+![image](https://user-images.githubusercontent.com/45317642/147589351-27f75f47-215c-4d98-b39b-ec32ab3a987d.png)
+
