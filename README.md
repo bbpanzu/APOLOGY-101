@@ -24,6 +24,7 @@ remember you DID do something wrong and YOU DID affect people. Admit to it.
 	"I'm sorry you feel hurt/offended for what i did/said" HELLA WRONG. This puts the accountablilty on the victim.
 	"I apologize for [insert wrongdoing here]. I now know it [*reason why wrong doing is bad]." CORRECT. Not only did you awknowlege your action, you stated why what you did was wrong.
 		*reason should never be "it offends/upsets people".
+		* PROTIP: If you're apology answers the question "what did you do?" then it's a good start.
 ```
 ## 3. MAKE UP FOR IT (If possible)
 	you cannot do this step until you have done the 1st two.
@@ -40,6 +41,7 @@ remember you DID do something wrong and YOU DID affect people. Admit to it.
     (white guy: sorry for n word
     other white guy: it's ok!
     white guy: you are not in the position to forgive me. you weren't affected
+    	
     )
 	
 ## CONCLUSION
