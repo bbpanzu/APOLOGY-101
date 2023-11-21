@@ -34,7 +34,7 @@ remember you DID do something wrong and YOU DID affect people. Admit to it.
 
 
 ## EXTRAS:
-	- NEVER ASK FOR FORGIVENESS (never expect forgiveness. apologize anyway because you aren't looking for forgiveness remember ;P)
+	- NEVER EXPECT FORGIVENESS (apologize anyway because you aren't looking for forgiveness remember ;P)
 	- KEEP IT AS SERIOUS BUT GENUINE AS POSSIBLE (no joking talk. take this slash srs. don't talk like a resume tho. keep it slash gen)
 	- DON'T USE TWITLONGER. USE TWITTER THREADS (ive seen better results from threads)
 	- SPECIFY THAT THE NON-VICTIMS OF YOUR ACTIONS ARE NOT IN THE POSITION TO FORGIVE YOU 
@@ -45,7 +45,7 @@ remember you DID do something wrong and YOU DID affect people. Admit to it.
     )
 	
 ## CONCLUSION
-If all this has been done and they still do not forgive you, let it go. You should spend time trying to convince someone. Just work at yourself and become better.
+If all this has been done and they still do not forgive you, let it go. You shouldn't spend time trying to convince someone. Just work at yourself and become better.
 
 
 here's an epic image guide
