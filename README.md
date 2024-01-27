@@ -38,6 +38,7 @@ remember you DID do something wrong and YOU DID affect people. Admit to it.
 	- KEEP IT AS SERIOUS BUT GENUINE AS POSSIBLE (no joking talk. take this slash srs. don't talk like a resume tho. keep it slash gen)
 	- DON'T USE TWITLONGER. USE TWITTER THREADS (ive seen better results from threads)
 	- SPECIFY THAT THE NON-VICTIMS OF YOUR ACTIONS ARE NOT IN THE POSITION TO FORGIVE YOU 
+ 	- IF POSSIBLE ADD "i have made a severe and continuous laps in my judgement"
     (white guy: sorry for n word
     other white guy: it's ok!
     white guy: you are not in the position to forgive me. you weren't affected
